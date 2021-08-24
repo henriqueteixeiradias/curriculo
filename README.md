@@ -1,9 +1,14 @@
 # curriculo
 Henrique Teixeira Dias
+
 Solteiro, brasileiro, 20 anos
+
 CEP 09070–310 - Santo André - São Paulo
+
 +55 (11) 9-4897 – 0177
+
 Email: henriquetd22@gmail.com
+
 Objetivo
 Ingressar, no mercado de trabalho estando disponível para diversas
 oportunidades
